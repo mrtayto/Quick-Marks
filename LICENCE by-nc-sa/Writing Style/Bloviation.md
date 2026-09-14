@@ -1,1 +1,0 @@
-Bloviation is speech or writing that is wordy, pompous, and generally empty of meaning: verbosity. Verb: bloviate. A person who bloviates is a bloviator. See: [https://www.thoughtco.com/what-is-bloviation-1689029 open_in_new](https://www.thoughtco.com/what-is-bloviation-1689029)

@@ -1,1 +1,0 @@
-Situated Action (definition) [https://github.com/mrtayto/antart/wiki/situated-action open_in_new](https://github.com/mrtayto/antart/wiki/situated-action)

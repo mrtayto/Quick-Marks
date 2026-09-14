@@ -1,5 +1,0 @@
-Structures of Refusal 
-
-This is an example of what Marcel Mauss called 'structures of refusal':
-
-…. 'why are the peoples of California so similar to one another, and so different from neighbouring peoples of the American Southwest, or the Canadian Northwest Coast?" […] 'The answer, Mauss felt, is that this is precisely how cultures define themselves against their neighbours. Cultures were, effectively, structures of refusal. Chinese are people who use chopsticks, but not knives and forks; Thai are people who use spoons, but not chopsticks, and so forth. It's easy enough to see how this could be true of aesthetics – styles of art, music or table manners – but surprisingly, Mauss found, it extended even to technologies which held obvious adaptive or utilitarian benefits. He was intrigued, for example, by the fact that Athabascans in Alaska steadfastly refused to adopt Inuit kayaks, despite these being self-evidently more suited to the environment than their own boats. Inuit, for their part, refused to adopt Athabascan snowshoes.' Graeber, David, and D. Wengrow. The Dawn of Everything : A New History of Humanity. London: Penguin Books, 2022. 80-81

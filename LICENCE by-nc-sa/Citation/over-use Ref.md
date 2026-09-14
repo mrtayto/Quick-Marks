@@ -1,1 +1,0 @@
-Over reliance on certain authors can indicate a lack of wider reading.

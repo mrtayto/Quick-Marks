@@ -1,3 +1,0 @@
-GenAI Citation 
-
-Presenting AI generated content for assessment as your own work constitutes Academic Misconduct See: [https://www.ed.ac.uk/bayes/ai-guidance-for-staff-and-students/ai-guidance-for-students open_in_new](https://www.ed.ac.uk/bayes/ai-guidance-for-staff-and-students/ai-guidance-for-students) You must cite and acknowledge the use of GenAI as follows: [https://uoe.sharepoint.com/sites/MACATFoundations/SitePages/Citation.aspx?csf=1&web=1&e=7dMbAc#citi

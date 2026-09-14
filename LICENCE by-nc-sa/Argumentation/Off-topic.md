@@ -1,1 +1,0 @@
-"Off-topic" refers to something in your writing that is not relevant to the main theme or thesis. Identifying and addressing off-topic elements in your writing helps ensure that you develop a nuanced argument in depth.

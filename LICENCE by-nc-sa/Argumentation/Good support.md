@@ -1,1 +1,0 @@
-Good reference and support for your methods
