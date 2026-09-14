@@ -1,0 +1,1 @@
+Double Citation You don't need footnotes as you have used Harvard citation in the text. This is doubling up.

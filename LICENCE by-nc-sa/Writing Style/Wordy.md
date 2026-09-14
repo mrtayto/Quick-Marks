@@ -1,0 +1,1 @@
+ Wordy: If you use too many words to describe a relatively minor point, your paper may seem wordy. In order to be as concise as possible, trim your sentences down and use longer, more meaningful words. Try to use fewer two- and three-letter words, passive constructions, and weak verbs such as "seem" and "appear."
