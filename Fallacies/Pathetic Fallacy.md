@@ -1,0 +1,1 @@
+Pathetic fallacy is a literary device that attributes human qualities and emotions to inanimate objects of nature. The word pathetic in the term is not used in the derogatory sense of being miserable; rather, it stands for "imparting emotions to something else."

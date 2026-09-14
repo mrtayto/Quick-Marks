@@ -1,0 +1,1 @@
+UK English In Scotland, we use UK English only in writing, i.e. - -ise, -isation, "realisation", "operationalised", "colour", "behaviour", "centre".

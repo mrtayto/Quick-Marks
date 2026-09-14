@@ -1,0 +1,1 @@
+Run-on Run-on sentence: The sentence contains two or more independent clauses. Separate the clauses with a period or semicolon.

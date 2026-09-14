@@ -1,0 +1,3 @@
+False analogy – an argument by analogy in which the analogy is poorly suited.
+
+An argument from analogy is weakened if it is inadequate in any of the above respects. The term "false analogy" comes from the philosopher John Stuart Mill, who was one of the first individuals to examine analogical reasoning in detail. One of Mill's examples involved an inference that some person is lazy from the observation that his or her sibling is lazy.

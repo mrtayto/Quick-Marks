@@ -1,0 +1,1 @@
+Fragment: A sentence fragment is a phrase or clause that is in some way incomplete. Such fragments become problematic when they attempt to stand alone as a complete sentence. The most common version of this mistake occurs when a writer mistakes a gerund (a verb that acts like a noun) for a main verb, as in the following sentence: "In bed reading Shakespeare from dusk to dawn."

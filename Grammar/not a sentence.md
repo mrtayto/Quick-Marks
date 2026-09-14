@@ -1,0 +1,1 @@
+A sentence generally includes a subject and a predicate, and it conveys a complete idea or piece of information. A complete sentence should be able to stand alone and make sense.

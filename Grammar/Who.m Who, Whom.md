@@ -1,0 +1,1 @@
+Who/m Who / Whom [https://www.grammarly.com/blog/who-vs-whom-its-not-as-complicated-as-you-might-think/ open_in_new](https://www.grammarly.com/blog/who-vs-whom-its-not-as-complicated-as-you-might-think/)

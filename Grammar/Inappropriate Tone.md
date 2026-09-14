@@ -1,0 +1,3 @@
+Inappropriate Tone: 
+
+The way you say something can be just as meaningful as the content of what you say. In an academic essay, there is a danger of being too informal. As you write, you must have a clear sense of the kind of reader (audience) you are writing for, and adjust the formality, complexity, sincerity, and depth of your writing accordingly. In short, your tone is your overall attitude toward your reader. Your tone should in all circumstances be consistent and respectful. Problems with tone arise most often from the use of slang expressions, which you must avoid in academic writing.

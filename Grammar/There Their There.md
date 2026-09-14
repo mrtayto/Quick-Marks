@@ -1,0 +1,1 @@
+There/Their/They're There/Their/They're: "There" is an adverb indicating location. "Their" is a pronoun indicating ownership. "They're" is a contraction meaning "they are."

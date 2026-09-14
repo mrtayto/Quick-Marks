@@ -1,0 +1,1 @@
+T/W That/Which: Student writers are often confused as to when to use "that" and when to use "which." The basic rule concerning this issue is "that" should be used when introducing restrictive clauses (clauses that are necessary to the sentence) and "which" should be used with commas to set off unrestrictive (unnecessary) clauses.

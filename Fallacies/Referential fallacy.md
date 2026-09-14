@@ -1,0 +1,3 @@
+Referential fallacy – assuming that all words refer to existing things and that the meaning of words reside within the things they refer to, as opposed to words possibly referring to no real object (e.g.: Pegasus) or that the meaning comes from how they are used (e.g.: "nobody" was in the room).
+
+[https://en.wikipedia.org/wiki/Direct_reference_theory open_in_new](https://en.wikipedia.org/wiki/Direct_reference_theory)

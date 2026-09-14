@@ -1,0 +1,1 @@
+Gram. A grammatical error refers to a mistake or deviation from the established rules and conventions of a language's grammar. It occurs when the structure, syntax, or usage of words in a sentence does not align with the accepted norms of the language.
